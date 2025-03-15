@@ -37,7 +37,7 @@
 ---
 
 ## 📬 Let's Connect  
-🔗 **LinkedIn:** https://www.linkedin.com/in/preeti-gautam-899a736a/
+🔗 **LinkedIn:** https://www.linkedin.com/in/preeti-gautam-899a736a/ <br>
 📧 **Email:** preetigautam8688@gmail.com 
 
 ✨ _Always eager to explore new opportunities in data analytics and visualization!_  
